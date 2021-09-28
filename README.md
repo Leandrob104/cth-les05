@@ -1,8 +1,8 @@
 
-#Recept voor 2/3 personen
+# Recept voor 2/3 personen
 Tijd: 10 min.
 
-##__Benodigdheden__:
+## __Benodigdheden__:
 
 12,5 gram bloem
 12,5 gram boter
