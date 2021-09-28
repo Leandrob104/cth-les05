@@ -14,3 +14,5 @@ snufje zout/peper
 __Bereidingswijze:__
 
 Smelt de boter in de pan. Voeg vervolgens de bloem toe en bak de bloem ongeveer 1 minuut mee. Voeg daarna beetje bij beetje de melk toe en ondertussen meng je de saus. Warm het sausje nu langzaam op en blijf ondertussen regelmatig roeren. Zodra het sausje wat dikker is geworden, voeg je de geraspte kaas toe. Voeg naar smaak meer of minder kaas toe en een snufje zout/peper toe.  Serveer de kaassaus bijvoorbeeld bij worteltjes, bloemkool of broccoli.
+
+![alt text](https://www.maggi.nl/sites/default/files/styles/product_image_desktop_617_900/public/product_images/MAGGI_SAUS-KAAS-FOP_V2B.png?itok=qZZtLh-A)
